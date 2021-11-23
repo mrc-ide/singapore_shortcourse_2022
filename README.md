@@ -1,0 +1,1 @@
+# singapore_shortcourse_2022
